@@ -1,4 +1,0 @@
-# canvasample
-# canvasample
-# canvasample
-# canvasample
